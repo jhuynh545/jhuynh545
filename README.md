@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @jhuynh545
-- 👀 I’m interested in ... data analytics
+- 👀 I’m interested in ... all things outdoors and baking. 
 - 🌱 I’m currently learning ... how to be a data analysts. I am getting Google certified. 
 - 💞️ I’m looking to collaborate on ... a variety of projects ot help me learn and broaden my knowledge. 
 - 📫 How to reach me ... jasminehuynh1@gmail.com
